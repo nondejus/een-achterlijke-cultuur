@@ -1,2 +1,0 @@
-# een-achterlijke-cultuur
-psychiaters
